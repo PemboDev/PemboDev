@@ -3,5 +3,5 @@
 💞️ Front-end web dev is my current focus. Self-taught and committed/excited to learn from peers!  
     Currently working on building my portfolio. Check it out on my GitHub page! <link>
 
-📫 Let's chat at Pembo.dev@gmail.com - I am friendly and approachable. (Also, a huge gamer 👀)
+📫 Let's chat at pembo.dev@gmail.com - I am friendly and approachable. (Also, a huge gamer 👀)
 
